@@ -2,5 +2,6 @@ first commit
 How are you?
 Are you okay?
 Git is discreabe version software.
-I will fuck Peking again!
+I have a dream that you can`t have.
 Fuck golden state!
+You just a mother fucker!
