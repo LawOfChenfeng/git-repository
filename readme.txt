@@ -1,6 +1,6 @@
 first commit
 How are you?
-Are you okay?
+Are you okay,Lei Jun?
 Git is discreabe version software.
 I have a dream that you can`t have.
 Fuck golden state!
